@@ -1,1 +1,0 @@
-# taha-s-helper-bot9
